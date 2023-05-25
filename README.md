@@ -1,4 +1,3 @@
-![Climbing a big Rock](https://i.ibb.co/tChsFgr/IMG-7807.jpg)
 ## About Me 🧐
 
 ##### Hello! My name is Jonah. Welcome to my GitHub page, it's great to have you here!
